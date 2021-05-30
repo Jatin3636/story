@@ -1,1 +1,1 @@
-Once upon time
+Once upon time in a forest lived a lion.
